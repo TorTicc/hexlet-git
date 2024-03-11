@@ -1,0 +1,1 @@
+Pizdec nahuy blya
